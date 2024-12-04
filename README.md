@@ -1,5 +1,3 @@
-## Music Video Memories
-
-- Easy
+## Music Video Memories - Easy
 
 ## Project Statement
